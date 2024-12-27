@@ -3,7 +3,7 @@ Challenged the validity of First, Fourth and Seventeenth Amendments.<br>
 Constituted an 11-judge bench.<br>
 Slender majority of 6:5.<br>
 Supreme Court ruled that the distinction between constituent power and legislative power laid down in <i>Shankari Prasad</i> was unfounded.<br>
-Court dound fundamental rights to be so sarcosant and transcendental that even unanimous vote of Parliament would not be sufficient to weaken them.<br>
+Court found fundamental rights to be so sarcosant and transcendental that even unanimous vote of Parliament would not be sufficient to weaken them.<br>
 Court asserted that fundamental inviolable and admitted that applying decision across board would be chaotic.<br>
 Decided to move with American doctrine of 'Prospective Overruling'.<br>
 This further means that its decision would apply only to subsequent constitutional amendments.<br>
