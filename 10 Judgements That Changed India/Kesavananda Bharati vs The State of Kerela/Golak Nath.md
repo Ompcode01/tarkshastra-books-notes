@@ -9,6 +9,6 @@ Decided to move with American doctrine of 'Prospective Overruling'.<br>
 This further means that its decision would apply only to subsequent constitutional amendments.<br>
 So, petitioners in <i>Golak Nath</i> got no relief.<br>
 In <i>Golak Nath</i>, Supreme Court, for the first time, based decision purely on political philosophy.<br>
-With the 24<sup>th</sup> Amendment, the Parliament nukllified the Court's decision in <i>Golak Nath</i>.<br>
+With the 24<sup>th</sup> Amendment, the Parliament nullified the Court's decision in <i>Golak Nath</i>.<br>
 This further ensured that constitutional amendments could not be reviewed by courts even if they violated fundamental rights.<br>
 [<i>Kesvananda Bharti</i>: The Lead-Up](./Lead%20up.md)
